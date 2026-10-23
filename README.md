@@ -1,4 +1,4 @@
-# Hi, I'm [Aditya Narayanan G]
+# Hi, I'm Aditya Narayanan G
 
 Business analyst in specialty chemicals, working on fuel additive markets across 13+ countries and strategic national oil company accounts. MSc, TU Delft (Technology, Policy and Management).
 
